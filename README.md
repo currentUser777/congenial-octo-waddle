@@ -1,3 +1,3 @@
 # congenial-octo-waddle
 blackHairedBrownEyedTastyAsHell__if you ask me...
-At least anyone not kowing github will guess "I should have started much earlier with programming. Will  be hard to reach up." when i understand and use all the features of this here (The side github.com meant). So its worth it. or not?
+At least anyone not kowing github will guess "I should have started much earlier with programming. Will  be hard to reach up." when i finaly understood what all of this is about more exactly. (github.com meant). So its worth it. or not? :))
